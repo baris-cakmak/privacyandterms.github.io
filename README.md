@@ -104,7 +104,7 @@ If any provision of these Terms is found to be unenforceable or invalid, that pr
 
 For questions or concerns about these Terms of Use, please contact us at:
 
-**Email:** support@peacelighter.com
+**Email:** bariscakmak26@icloud.com
 
 ---
 
